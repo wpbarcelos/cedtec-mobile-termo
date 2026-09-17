@@ -1,1 +1,0 @@
-# cedtec-mobile-termo
